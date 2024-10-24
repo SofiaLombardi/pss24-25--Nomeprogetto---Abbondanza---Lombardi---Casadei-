@@ -1,1 +1,1 @@
-# pss24-25--Shadowfell---Abbondanza---Lombardi---Casadei-
+# pss24-25--Shadowfell--Abbondanza--Lombardi--Casadei-
